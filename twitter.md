@@ -1,3 +1,5 @@
-##My twitter links!
+## My twitter links!
 
-solscohen(https://twitter.com/solscohen)
+[zahraposting](https://twitter.com/ZahraPosting) - public
+[solscohen](https://twitter.com/solscohen) - private
+[hurrnngg](https://twitter.com/hurrnngg)
