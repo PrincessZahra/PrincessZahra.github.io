@@ -1,9 +1,9 @@
 ## My twitter links!
 
 ### My personal accounts
-- [zahraposting](https://twitter.com/ZahraPosting)  Public
-- [solscohen](https://twitter.com/solscohen)  Private 
-- [hurrnngg](https://twitter.com/hurrnngg)  Private NSFW
+- [zahraposting](https://twitter.com/ZahraPosting)
+- [solscohen](https://twitter.com/solscohen)
+- [hurrnngg](https://twitter.com/hurrnngg)
 
 ### Brand accounts
 - [socdemnetwork](https://twitter.com/socdemnetwork)
