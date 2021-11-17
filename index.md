@@ -5,7 +5,7 @@ This is a fairly generic website created by me, with help from a few others. Eve
 ## Social media
 
 - [Twitter](/twitter)
-- Discord
+- [Discord](/discord)
 - Telegram
 - Other sites
 
