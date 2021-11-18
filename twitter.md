@@ -10,7 +10,7 @@
 - [socdemwiki](https://twitter.com/socdemwiki)
 
 ### Threads & stuff
-
+#### Public threads & stuff
 - [Liberal Eugenics](https://twitter.com/ZahraPosting/status/1452970531372900368)
 - [Bad takes challenge](https://twitter.com/ZahraPosting/status/1437385619601297418)
 - [Controversial KPD tweet](https://twitter.com/ZahraPosting/status/1431170002812604423)
@@ -19,8 +19,7 @@
 - [Top ten friends in August 21](https://twitter.com/ZahraPosting/status/1423194412063076352)
 - [Veganism](https://twitter.com/ZahraPosting/status/1417543325113102339)
 
-#### Priv threads & stuff
- 
+#### Private threads & stuff
 - [Climate change](https://twitter.com/solscohen/status/1461415643400609796)
 - [Reveal challenge](https://twitter.com/solscohen/status/1453410465095327745)
 - [xeno-pronouns](https://twitter.com/solscohen/status/1452249905939025929)
