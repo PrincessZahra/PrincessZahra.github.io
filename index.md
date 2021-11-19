@@ -16,3 +16,4 @@ coming soon maybe
 ## Research
 
 - [Causes of Homosexuality](/homosexuality)
+- [Notes on consensual nonmonogamy](/non-monogamy)
