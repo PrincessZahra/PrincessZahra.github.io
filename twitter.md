@@ -30,6 +30,3 @@
 - [Destiny's gender trinary](https://twitter.com/solscohen/status/1449342660842606595)
 - [The pronoun "Ze"](https://twitter.com/solscohen/status/1447855538704879616)
 - [Hi](https://twitter.com/solscohen/status/1177596438068350976)
-
-
-[homepage](/)
