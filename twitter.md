@@ -18,6 +18,7 @@
 - [This is Brexit](https://twitter.com/ZahraPosting/status/1425869146391289865)
 - [Top ten friends in August 21](https://twitter.com/ZahraPosting/status/1423194412063076352)
 - [Veganism](https://twitter.com/ZahraPosting/status/1417543325113102339)
+- [Abortion comment](https://twitter.com/ZahraPosting/status/1352434809017151489?s=19)
 
 #### Private threads & stuff
 - [Climate change](https://twitter.com/solscohen/status/1461415643400609796)
