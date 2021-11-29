@@ -19,6 +19,7 @@
 - [Top ten friends in August 21](https://twitter.com/ZahraPosting/status/1423194412063076352)
 - [Veganism](https://twitter.com/ZahraPosting/status/1417543325113102339)
 - [Abortion comment](https://twitter.com/ZahraPosting/status/1352434809017151489?s=19)
+- [Essay on Fish on xenogenders](https://twitter.com/ZahraPosting/status/1465106467392872449?s=20)
 
 #### Private threads & stuff
 - [Climate change](https://twitter.com/solscohen/status/1461415643400609796)
