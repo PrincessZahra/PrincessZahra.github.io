@@ -11,15 +11,7 @@
 
 ### Threads & stuff
 #### Public threads & stuff
-- [Liberal Eugenics](https://twitter.com/ZahraPosting/status/1452970531372900368)
-- [Bad takes challenge](https://twitter.com/ZahraPosting/status/1437385619601297418)
-- [Controversial KPD tweet](https://twitter.com/ZahraPosting/status/1431170002812604423)
-- [Iran trans rights meme](https://twitter.com/ZahraPosting/status/1430875369041760260)
-- [This is Brexit](https://twitter.com/ZahraPosting/status/1425869146391289865)
-- [Top ten friends in August 21](https://twitter.com/ZahraPosting/status/1423194412063076352)
-- [Veganism](https://twitter.com/ZahraPosting/status/1417543325113102339)
-- [Abortion comment](https://twitter.com/ZahraPosting/status/1352434809017151489?s=19)
-- [Essay on Fish on xenogenders](https://twitter.com/ZahraPosting/status/1465106467392872449?s=20)
+- None cuurently
 
 #### Private threads & stuff
 - [Climate change](https://twitter.com/solscohen/status/1461415643400609796)
