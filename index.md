@@ -7,7 +7,7 @@ This is a fairly generic website created by me, with help from a few others. Eve
 - [Twitter](/twitter)
 - [Discord](/discord)
 - Telegram
-- Other sites
+- [Pronouns.page](https://en.pronouns.page/@solscohen)
 
 ## Articles
 
