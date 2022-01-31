@@ -11,7 +11,7 @@ This is a fairly generic website created by me, with help from a few others. Eve
 
 ## Articles
 
-coming soon maybe
+- [Foxbian](https://foxbian.carrd.co/)
 
 ## Research
 
