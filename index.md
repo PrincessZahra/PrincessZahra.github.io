@@ -8,6 +8,7 @@ This is a fairly generic website created by me, with help from a few others. Eve
 - [Discord](/discord)
 - [Telegram](/telegram)
 - [Pronouns.page](https://en.pronouns.page/@solscohen)
+- [Other socials](/other-social)
 
 ## Articles
 
